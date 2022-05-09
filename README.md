@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @fakh73yhbd
+- 👋 Hi, I’m @fakhrul_00
 - 👀 I’m interested in hacking facebook id
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on hacking
